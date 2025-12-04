@@ -33,14 +33,14 @@ Los estudiantes podrán acceder a guías, videos o lecciones en el idioma que me
 
 ## Documentación Técnica
 
-- [Documento técnico en PDF](./documento/Aula_Multilingue_GT.pdf)
-- Presentacion PowerPoint https://universidaddavincid-my.sharepoint.com/:p:/g/personal/202200969_estudiante_udv_edu_gt/ET9ICFD0OS1PvEwQ8x4eItoBhdCpFVjwC5X7_HTq5P-FJQ?e=odCYtU
+- [Documento técnico en PDF](https://universidaddavincid-my.sharepoint.com/:w:/g/personal/202200969_estudiante_udv_edu_gt/EdFnth_EJjxDuXAq_2gqEvoB2WLFMonlcn2jRyKM1N0PjA?e=XyklmJ)
+- Presentacion PowerPoint https://universidaddavincid-my.sharepoint.com/:p:/g/personal/202200969_estudiante_udv_edu_gt/ET9ICFD0OS1PvEwQ8x4eItoBhdCpFVjwC5X7_HTq5P-FJQ?e=4PyRPs
 
 ---
 
 ## Video Pitch
 
-https://universidaddavincid-my.sharepoint.com/:v:/g/personal/202200969_estudiante_udv_edu_gt/ETSsFnSLVkNDuWP337bsGkwBH-d7H5HfH-XqvhsOmNX9gA?e=hXWYAP
+https://universidaddavincid-my.sharepoint.com/:v:/g/personal/202200969_estudiante_udv_edu_gt/ETSsFnSLVkNDuWP337bsGkwBZAg02lZQyCtbSOhEQvoC1g?e=eDmJX2
 
 ---
 
